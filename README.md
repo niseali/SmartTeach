@@ -1,0 +1,2 @@
+# SmartTeach
+waa shirkad soomaaliyeed
